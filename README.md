@@ -1,4 +1,4 @@
-## Target Test Prep Coupons 2025 | Get 50% Promo Code
+# Target Test Prep Coupons 2025 | Get 50% Promo Code
 
 Want to score high on your SAT, GMAT, or GRE exam? Use our [Target Test Prep coupons](https://shareasale.com/r.cfm?b=1550103&u=4364832&m=97935&urllink=&afftrack=google) and start your preparation with the experts.
 
